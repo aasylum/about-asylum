@@ -14,6 +14,8 @@ i am a multifandom person because why
 
 here is the fandoms im in:
 
+terraria
+
 forsaken
 
 deltarune
